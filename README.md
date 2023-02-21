@@ -3,7 +3,7 @@ FREE TOOL FOR EVERYONE
 
 MESSAGE ME > https://t.me/techiebrain
 
-![Screen Shot 2023-02-21 at 2 32 18 AM](https://user-images.githubusercontent.com/125784563/220334178-32d6eea6-b649-43e7-ad9f-4291f73d70c2.png)
+![logo](https://user-images.githubusercontent.com/125784563/220335996-871978ba-4a35-444d-a8da-b3c84d03893a.svg)
 
 
 THIS IS A FREE SCRIPT AVAILABLE FOR EVERYONE
