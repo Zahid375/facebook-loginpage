@@ -41,4 +41,4 @@ THIS IS JUST A FRONTEND AND BACKEND TESTING SCRIPT MADE ON VISUAL STUDIO CODE
 
 # KEYWORDS
 
-how to hack facebook account how to retrieve my facebook account how to recover my facebook account how to crack facebook password
+how to hack facebook account how to retrieve my facebook account how to recover my facebook account how to crack facebook password facebook recovery
